@@ -10,4 +10,4 @@
 
 ★・ᶻz- Since this is just for Pony Town, I would love to interact with people, but please be aware that I am horrible at talking to people
 
-★・ᶻz- *continued form my bio since i ran out of space: the other two blogs are more personal, and I don't feel comfortable letting anyone I know irl yet. There's nothing bad on them, but just more personal than my main blog. I hope you understand :]*
+★・ᶻz- *continued form my bio since i ran out of space: the other two blogs are more personal, and I don't feel comfortable letting anyone I know irl yet. There's nothing bad on them, but just more personal than my main blog. I hope you understand :]
